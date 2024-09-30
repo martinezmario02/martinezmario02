@@ -1,5 +1,5 @@
 
-![Banner Tecnología Oferta Especial Morado y Negro](https://github.com/user-attachments/assets/db4736f4-a0db-4a30-ae36-36417268e9b7)
+![Banner github](https://github.com/user-attachments/assets/875f1b2c-041f-409a-a442-919b8661ed1c)
 
 ## Computer Engineer specialized in Software Engineering
 📕 I studied Computer Engineering at University of Granada (UGR)  
